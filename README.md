@@ -1,0 +1,1 @@
+Sou estudante de TI e atualmente estou no final do terceiro de 5 modulo do tecnico em TI, tenho 16 e gosto de lasanha
